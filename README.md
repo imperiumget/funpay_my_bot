@@ -1,0 +1,1 @@
+# FunPay-Deals-bots
